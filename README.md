@@ -1,0 +1,2 @@
+# adikkumasikecil
+adikkumasikecil
